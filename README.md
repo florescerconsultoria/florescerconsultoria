@@ -8,3 +8,10 @@ Transformar a área de RH em uma potência estratégica não é luxo. É necessi
 
 hashtag#rhestrategico hashtag#businesspartner
 hashtag#rhnamesaderesultados hashtag#gestaodamudanca
+
+
+Liderança: Assumir um cargo de liderança sem preparo não transforma ninguém em líder. Transforma em risco. Lideranças mal preparadas causam danos silenciosos, mas profundos. Equipes desmotivadas, projetos que não saem do papel, conflitos mal geridos e talentos que pedem demissão. Tudo isso gera custo. E não só financeiro.
+
+Estudos apontam que líderes ineficazes estão entre as principais causas de turnover e queda de produtividade. O problema é que, muitas vezes, se confunde liderança com senioridade técnica ou tempo de casa. O resultado é um exército de gestores inseguros, egocêntricos ou desconectados da realidade da equipe.
+
+O ego com crachá impõe medo, exige respeito e se esconde atrás da autoridade. O líder preparado escuta, constrói confiança e orienta com clareza. Empresas que não querem pagar a conta de lideranças ruins precisam investir na formação constante de quem ocupa ou deseja ocupar essa cadeira. Caso contrário, o crachá pode pesar mais que o impacto.
